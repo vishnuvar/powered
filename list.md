@@ -8,4 +8,5 @@
 |    5.    | [June 17](https://youtu.be/N8a15jmnCl0)  |                                                             |
 |    6.    | [June 21](https://youtu.be/norMBBPsmpQ)  |                                                             |
 |    7.    | [June 22](https://youtu.be/10vX4Su2uik)  |                                                             |
+|    8.    | [June 23](https://youtu.be/4dJmtMolTNA)  |                                                             |
 -----------------------------------------------------------------------------------------------------------
