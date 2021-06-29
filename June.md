@@ -13,6 +13,6 @@
 |    9.     | [June 24](https://youtu.be/Y1m-OtuLWFE)  |                                                             |
 |    10.    | [June 25](https://youtu.be/WfxrwrGlpo8)  |                                                             |
 |    11.    | [June 28](https://youtu.be/vVBfVh8IGe4)  |                                                             |
-|    12.    | [June 29](https://youtu.be/Y1m-OtuLWFE)  |                                                             |
+|    12.    | [June 29](https://youtu.be/Cy3chGluR50)  |                                                             |
 |    13.    | [June 30](https://youtu.be/Y1m-OtuLWFE)  |                                                             |
 ----------------------------------------------------------------------------------------------------------------------
